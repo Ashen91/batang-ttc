@@ -1,0 +1,1 @@
+Korean Default Batang Font
